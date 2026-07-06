@@ -1,4 +1,4 @@
-# 
+# Avancé pump.fun sniper bot extensions pour Mac OS | Mis à jour pump.fun sniper bot extensions pour PC Windows. Avec suivi des prix et enchères de gaz prioritaires — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
